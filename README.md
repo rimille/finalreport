@@ -8,8 +8,6 @@
 ![KakaoTalk_20220614_140154589](https://user-images.githubusercontent.com/107454967/173498300-b593e6a1-f8f3-4a13-861a-21c2f7267330.jpg)
 ![KakaoTalk_20220614_140154910](https://user-images.githubusercontent.com/107454967/173498303-da73e39c-ba66-484a-9ba6-aee04e9bc462.jpg)
 ![KakaoTalk_20220614_140155228](https://user-images.githubusercontent.com/107454967/173498305-e3f4898e-401c-4d5c-ab65-7d3577507940.jpg)
-![전전기실1](https://user-images.githubusercontent.com/107454967/173498307-8f8af6c8-0000-471a-9dcd-3133d8e6fc2e.jpg)
-![캡처](https://user-images.githubusercontent.com/107454967/173498311-1c684753-c33a-4a15-bd17-ddffb625a294.PNG)
 ![images](https://user-images.githubusercontent.com/107454967/173498316-0611ec32-5dc5-447f-97bc-f4b1ac849bf3.jpg)
 ![hgfg](https://user-images.githubusercontent.com/107454967/173498318-2e99a31b-c07e-493f-b45b-31ade9982c22.jpg)
 ![KakaoTalk_20220520_164344116](https://user-images.githubusercontent.com/107454967/173498320-7eb5023a-ee89-43e4-b890-dfca42a28a06.jpg)
